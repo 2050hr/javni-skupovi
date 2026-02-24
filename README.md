@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| akcija | Zelena akcija ([H-alter](https://h-alter.org/vijesti/zelena-akcija-zahtijevamo-da-zakon-stiti-okolis-a-ne-mocnike/)) | ispred Ministarstva zaštite okoliša, Zagreb | 24.02.2026 | zahtijevaju bolji Zakon o zaštiti okoliša koji će “štititi okoliš, a ne moćnike” |
 | prosvjed | politička stranka “Hoćemo pravedno” | Trg bana Jelačića, Zagreb | 08.03.2026 | zbog diskriminacije majki zbog dodanog staža za djecu u izračunu mirovine |
 | mirni prosvjed | Općina Plitvička Jezera ([Index](https://www.index.hr/vijesti/clanak/foto-odrzan-prosvjed-protiv-migrantskog-centra-u-zeljavi/2763463.aspx), [RTL v.](https://www.youtube.com/watch?v=5aB_JfVwg9s)) | Korenica | 22.02.2026 | protiv gradnje migrantskog centra u Željavi (Lika) |
 | skup | ukrajinsko veleposlanstvo ([Jutarnji v.](https://www.youtube.com/watch?v=yjTTIbsi_H8)) | Europski trg, Zagreb | 21.02.2026 | povodom četvrte godišnjice ruske agresije |
