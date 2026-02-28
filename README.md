@@ -188,5 +188,5 @@
 | prosvjed | građanska inicijativa Maksimir za Zagreb \[[ZagrebInfo](https://www.zagreb.info/vijesti/zagrepcani-stigli-na-maksimir-lijecnik-u-govoru-porucio-ovo-ce-imati-negativan-utjecaj-na-zdravlje-gradana/682892/)\] |  | 23.11.2024 | protivljenje izgradnji spalionice na Rebru (KBC Zagreb) |
 | prosvjed | stotinjak roditelja djece koja pohađaju privatne vrtiće u Šibeniku \[[Dnevnik](https://dnevnik.hr/vijesti/hrvatska/prosvjed-roditelja-na-sibenskoj-rivi-privatni-vrtici-gotovo-trostruko-skuplji-nego-gradski---881717.html)\] |  | 23.11.2024 | grad nije osigurao dovoljno mjesta u gradskim vrtićima za svu djecu, a cijene privatnih vrtića su gotovo tri puta veće |
 | prosvjed | seniori SDP-a i “Blok umirovljenici zajedno” |  | 10.11.2024 | traže da prosječna mirovina bude barem 60% prosječne plaće |
-|  | stanovnici Škrapa (Split) \[[RadioSplit](https://www.facebook.com/watch/?v=1774799316593525)\] |  | 08.11.2024 | zbog sadnje biljaka uz pločnik ulice Matice hrvatske čime im je onemogućen prilaz i parkiranje vozila ispred njihovih kuća |
+|  | stanovnici Škrapa \[[RadioSplit](https://www.facebook.com/watch/?v=1774799316593525)\] | Split | 08.11.2024 | zbog sadnje biljaka uz pločnik ulice Matice hrvatske čime im je onemogućen prilaz i parkiranje vozila ispred njihovih kuća |
 
