@@ -1,6 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
-| prosvjed | Savez samostalnih sindikata Hrvatske (SSSH), Nezavisni hrvatski sindikati (NHS), Matica hrvatskih sindikata (MHS), Sindikat umirovljenika Hrvatske (SUH) ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-hrvatska-zajedno-za-vece-place-i-mirovine/)) | Trg bana Jelačića, Zagreb | 18.04.2026 | za veće plaće i mirovine |
+| prosvjed | Savez samostalnih sindikata Hrvatske (SSSH), Nezavisni hrvatski sindikati (NHS), Matica hrvatskih sindikata (MHS), Sindikat umirovljenika Hrvatske (SUH) ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-hrvatska-zajedno-za-vece-place-i-mirovine/), [RTL v.](https://www.youtube.com/watch?v=jYcliF9oIlw)) | Trg bana Jelačića, Zagreb | 18.04.2026 | za veće plaće i mirovine |
 | marš | feministički kolektiv fAKTIV ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/deseti-nocni-mars-za-8-mart-u-zagrebu-zene-su-kicma-otpora/)) | ispred HNK, Zagreb | 08.03.2026 | za prava žena, povodom Međunarodnog dana žena |
 | marš | udruga Domine ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/10-mars-za-prava-zena-u-splitu-ja-sam-dalmacija/)) | ispred HNK, Split | 08.03.2026 | za prava žena, povodom Međunarodnog dana žena |
 | akcija | Zelena akcija ([H-alter](https://h-alter.org/vijesti/zelena-akcija-zahtijevamo-da-zakon-stiti-okolis-a-ne-mocnike/)) | ispred Ministarstva zaštite okoliša, Zagreb | 24.02.2026 | zahtijevaju bolji Zakon o zaštiti okoliša koji će “štititi okoliš, a ne moćnike” |
