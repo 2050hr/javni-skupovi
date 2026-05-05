@@ -1,6 +1,7 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
 | povorka ponosa “Pula-Pola Pride” | udruga Proces ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/treci-pula-pola-pride-i-mjesec-ponosa/)) | Trg Portarata, Pula | 20.06.2026 | za vidljivost i priznanje LGBTQ osoba |
+| prosvjedni koncert | Darko Rundek ([Danica](https://danica.hr/rundek-organizira-dravski-woodstock-protiv-goleme-farme-pilica/)) | Donja Dubrava (kod Legrada), MŽ | 16.05.2026 | protiv izgradnje megafarme pilića u blizini rezervata Veliki Pažut |
 | prosvjedna vožnja biciklima | udruga “Sindikat biciklista” ([Facebook](https://www.facebook.com/sindikatbiciklista/posts/1398832398956038)) | HNK, Zagreb | 08.05.2026 | sporost gradske uprave u razvoju biciklističke infrastrukture |
 | predaja zahtjeva | Zeleni odred Pula-Medulin ([Facebook](https://www.facebook.com/permalink.php?story_fbid=940068092123822&id=100083619180322)) | ispred ulaza u INK, Pula | 05.05.2026 | traže prekid rada centra za gospodarenje otpadom Kaštijun |
 | prosvjed | vlasnici zemljišta na Marjanu ([Index](https://www.index.hr/vijesti/clanak/vlasnici-bijesni-zbog-rusenja-ilegalnih-objekata-mi-stitimo-splitski-identitet/2788464.aspx)) | ispred gradske uprave, Split | 04.05.2026 | protivljenje najavljenom rušenju objekata koje je DORH proglasio nezakonitima na području park-šume Marjan |
