@@ -2,7 +2,7 @@
 | :---- | :---- | :---- | :---- | :---- |
 | povorka ponosa “Pula-Pola Pride” | udruga Proces ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/treci-pula-pola-pride-i-mjesec-ponosa/)) | Trg Portarata, Pula | 20.06.2026 | za vidljivost i priznanje LGBTQ osoba |
 | prosvjedni koncert | Darko Rundek ([Danica](https://danica.hr/rundek-organizira-dravski-woodstock-protiv-goleme-farme-pilica/)) | Donja Dubrava (kod Legrada), MŽ | 16.05.2026 | protiv izgradnje megafarme pilića u blizini rezervata Veliki Pažut |
-| “Hod za život” | ([HINA v.](https://www.youtube.com/watch?v=J-f1JPthNKY)) | Zagreb | 09.05.2026 | potpora nerođenima | 
+| “Hod za život” | ([HINA v.](https://www.youtube.com/watch?v=J-f1JPthNKY), [RTL v.](https://www.youtube.com/watch?v=CsDnW-InN4s)) | Zagreb | 09.05.2026 | potpora nerođenima | 
 | prosvjedna vožnja biciklima | udruga “Sindikat biciklista” ([Facebook](https://www.facebook.com/sindikatbiciklista/posts/1398832398956038), [Jutarnji](https://www.jutarnji.hr/vijesti/zagreb/kriticna-masa-zagreb-sindikat-biciklista-sigurnije-ulice-8-svibnja-15705261), [RTL v.](https://www.youtube.com/watch?v=nW198eNK-vI)) | HNK, Zagreb | 08.05.2026 | sporost gradske uprave u razvoju biciklističke infrastrukture |
 | prosvjed | proizvođač jaja Lukač ([HRT v.](https://www.youtube.com/watch?v=UTCYAYfqRX4)) | ispred Ministarstva poljoprivrede, Zagreb | 07.05.2026 | za spas hrvatske proizvodnje jaja |
 | predaja zahtjeva | Zeleni odred Pula-Medulin ([Facebook](https://www.facebook.com/permalink.php?story_fbid=940068092123822&id=100083619180322)) | ispred ulaza u INK, Pula | 05.05.2026 | traže prekid rada centra za gospodarenje otpadom Kaštijun |
