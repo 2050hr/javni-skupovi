@@ -1,6 +1,7 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
 | povorka ponosa “Pula-Pola Pride” | udruga Proces ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/treci-pula-pola-pride-i-mjesec-ponosa/)) | Trg Portarata, Pula | 20.06.2026 | za vidljivost i priznanje LGBTQ osoba |
+| prosvjedni performans | građanska inicijativa “Protiv sječe!” ([HINA v.](https://www.youtube.com/watch?v=7VB04zaquvo)) | Giardini, Pula | 18.05.2026 | protiv prekomjernog orezivanja stoljetnih stabala na na Giardinima |
 | “Hod za život” | ([Jutarnji v.](https://www.youtube.com/watch?v=qL_CQk3dOmk)) | Split | 17.05.2026 | | 
 | prosvjedni koncert | Darko Rundek ([Danica](https://danica.hr/rundek-organizira-dravski-woodstock-protiv-goleme-farme-pilica/)) | Donja Dubrava (kod Legrada), MŽ | 16.05.2026 | protiv izgradnje megafarme pilića u blizini rezervata Veliki Pažut |
 | performans | ([Novi list](https://www.novilist.hr/rijeka-regija/rijeka/video-ogorcenje-na-pehlinu-gradani-u-rupama-u-asfaltu-sadili-cvijece-dosta-nam-je-prasine-i-blata/), [HRT v.](https://www.youtube.com/watch?v=t6vv4CFwUmM)) | Pehlin, Rijeka | 10.05.2026 | zbog radova na cesti koji predugo traju |
