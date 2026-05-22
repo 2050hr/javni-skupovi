@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| mirni prosvjed | Branko Benčina ([HRT v.](https://www.youtube.com/watch?v=kfyHjhpkgas)) | ispred gradske vijećnice, Lepoglava | 21.05.2026 |  jer mu Grad Lepoglava ne dopušta gradnju ograde uz kuću |
 | prosvjed | ([RTL v.](https://www.youtube.com/watch?v=Fob9qPVFssU)) | ispred HNK-a, Osijek | 21.05.2026 | zbog odluke uprave da otpusti ~20 zaposlenika u sklopu racionalizacije poslovanja |
 | povorka ponosa “Pula-Pola Pride” | udruga Proces ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/treci-pula-pola-pride-i-mjesec-ponosa/)) | Trg Portarata, Pula | 20.06.2026 | za vidljivost i priznanje LGBTQ osoba |
 | mirni prosvjed | ([RTL v.](https://www.youtube.com/watch?v=ytTb5C9wM9Q)) | Drniš | 20.05.2026 | |
