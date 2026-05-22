@@ -3,7 +3,7 @@
 | mirni prosvjed | Branko Benčina ([HRT v.](https://www.youtube.com/watch?v=kfyHjhpkgas)) | ispred gradske vijećnice, Lepoglava | 21.05.2026 |  jer mu Grad Lepoglava ne dopušta gradnju ograde uz kuću |
 | prosvjed | Hrvatski sindikat djelatnika u kulturi ([Telegram](https://www.telegram.hr/kultura/prosvjed-zbog-otkaza-u-hnk-cije-kazalisno-vijece-vodi-anto-dapic-ljudi-placu-ovo-sto-rade-je-suludo/), [RTL v.](https://www.youtube.com/watch?v=Fob9qPVFssU)) | ispred HNK-a, Osijek | 21.05.2026 | zbog odluke uprave da otpusti ~20 zaposlenika u sklopu racionalizacije poslovanja |
 | povorka ponosa “Pula-Pola Pride” | udruga Proces ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/treci-pula-pola-pride-i-mjesec-ponosa/)) | Trg Portarata, Pula | 20.06.2026 | za vidljivost i priznanje LGBTQ osoba |
-| mirni prosvjed | ([RTL v.](https://www.youtube.com/watch?v=ytTb5C9wM9Q)) | Drniš | 20.05.2026 | |
+| mirni prosvjed | ([RTL v.](https://www.youtube.com/watch?v=ytTb5C9wM9Q)) | Drniš | 20.05.2026 | traže jasne odgovore od nadležnih institucija |
 | prosvjed “19 minuta šutnje za Luku” | ([HRT v.](https://www.youtube.com/watch?v=kgRWD6AdfKM)) | ispred Općinskog suda, Šibenik; ispred Županijskog suda, Zadar | 19.05.2026 | zbog sporosti i neefikasnosti pravosudnih institucija |
 | prosvjedni performans | građanska inicijativa “Protiv sječe!” ([HINA v.](https://www.youtube.com/watch?v=7VB04zaquvo)) | Giardini, Pula | 18.05.2026 | protiv prekomjernog orezivanja stoljetnih stabala na Giardinima |
 | “Hod za život” | ([Jutarnji v.](https://www.youtube.com/watch?v=qL_CQk3dOmk)) | Split | 17.05.2026 | | 
