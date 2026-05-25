@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| mirno okupljanje | Udruga za bolju Hrvatsku ([HINA v.](https://www.youtube.com/watch?v=gulP9MtffIY)) | park Zrinjevac, Zagreb | 24.05.2026 | u čast tragično preminulog Luke Milovca |
 | “Hod za život” | ([HRT v.](https://www.youtube.com/watch?v=DYcneVFNPVU); [Jutarnji v.](https://www.youtube.com/watch?v=y1Lj4nKFEBE)) | Osijek; Zaprešić | 23.05.2026 | traže zakonsku zaštitu života od začeća |
 | mirni prosvjed | Branko Benčina ([HRT v.](https://www.youtube.com/watch?v=kfyHjhpkgas)) | ispred gradske vijećnice, Lepoglava | 21.05.2026 |  jer mu Grad Lepoglava ne dopušta gradnju ograde uz kuću |
 | prosvjed | Hrvatski sindikat djelatnika u kulturi ([Telegram](https://www.telegram.hr/kultura/prosvjed-zbog-otkaza-u-hnk-cije-kazalisno-vijece-vodi-anto-dapic-ljudi-placu-ovo-sto-rade-je-suludo/), [RTL v.](https://www.youtube.com/watch?v=Fob9qPVFssU)) | ispred HNK-a, Osijek | 21.05.2026 | zbog odluke uprave da otpusti ~20 zaposlenika u sklopu racionalizacije poslovanja |
