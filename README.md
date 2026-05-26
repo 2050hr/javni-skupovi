@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjedni koncert “Drava se ne trži” | građanska inicijativa “Legrad – Donja Dubrava” ([H-alter](https://h-alter.org/vijesti/drava-se-ne-trzi-niti-ne-kupuje-gradani-pozivaju-na-sljedece-dogadaje-za-obranu-velikog-pazuta/)) | Donja Dubrava (kod Legrada), MŽ | 30.05.2026 | protiv izgradnje megafarme pilića u blizini rezervata Veliki Pažut |
 | prosvjed | učenici dubrovačke Pomorske škole ([Index](https://www.index.hr/vijesti/clanak/dubrovacki-maturanti-prosvjedovali-za-pritvorenog-kolegu-samo-je-odgurnuo-bengalku/2795696.aspx), [Jutarnji v.](https://www.youtube.com/watch?v=l_bC2W0A97Y)) | pred Općinskim sudom, Dubrovnik | 25.05.2026 | potpora učeniku pritvorenom zbog napada na policajaca |
 | mirno okupljanje | Udruga za bolju Hrvatsku ([HINA v.](https://www.youtube.com/watch?v=gulP9MtffIY)) | park Zrinjevac, Zagreb | 24.05.2026 | u čast tragično preminulog Luke Milovca |
 | “Hod za život” | ([HRT v.](https://www.youtube.com/watch?v=DYcneVFNPVU); [Jutarnji v.](https://www.youtube.com/watch?v=y1Lj4nKFEBE)) | Osijek; Zaprešić | 23.05.2026 | traže zakonsku zaštitu života od začeća |
@@ -10,7 +11,6 @@
 | prosvjed “19 minuta šutnje za Luku” | ([HRT v.](https://www.youtube.com/watch?v=kgRWD6AdfKM)) | ispred Općinskog suda, Šibenik; ispred Županijskog suda, Zadar | 19.05.2026 | zbog sporosti i neefikasnosti pravosudnih institucija |
 | prosvjedni performans | građanska inicijativa “Protiv sječe!” ([HINA v.](https://www.youtube.com/watch?v=7VB04zaquvo)) | Giardini, Pula | 18.05.2026 | protiv prekomjernog orezivanja stoljetnih stabala na Giardinima |
 | “Hod za život” | ([Jutarnji v.](https://www.youtube.com/watch?v=qL_CQk3dOmk)) | Split | 17.05.2026 | | 
-| prosvjedni koncert | Darko Rundek ([Danica](https://danica.hr/rundek-organizira-dravski-woodstock-protiv-goleme-farme-pilica/)) | Donja Dubrava (kod Legrada), MŽ | 16.05.2026 | protiv izgradnje megafarme pilića u blizini rezervata Veliki Pažut |
 | performans | ([Novi list](https://www.novilist.hr/rijeka-regija/rijeka/video-ogorcenje-na-pehlinu-gradani-u-rupama-u-asfaltu-sadili-cvijece-dosta-nam-je-prasine-i-blata/), [HRT v.](https://www.youtube.com/watch?v=t6vv4CFwUmM)) | Pehlin, Rijeka | 10.05.2026 | zbog radova na cesti koji predugo traju |
 | prosvjed | A-HSP ([VIDA v.](https://www.youtube.com/watch?v=WuthFjAgQ4Q)) | kod Mosta slobode, Zagreb | 09.05.2026 | protiv održavanja manifestacije “Trnjanski kresovi” |
 | “Hod za život” | ([HINA v.](https://www.youtube.com/watch?v=J-f1JPthNKY), [RTL v.](https://www.youtube.com/watch?v=CsDnW-InN4s)) | Zagreb | 09.05.2026 | potpora nerođenima | 
