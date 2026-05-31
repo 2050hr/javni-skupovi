@@ -1,6 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
-| prosvjedni koncert “Drava se ne trži” | građanska inicijativa “Legrad – Donja Dubrava” ([H-alter](https://h-alter.org/vijesti/drava-se-ne-trzi-niti-ne-kupuje-gradani-pozivaju-na-sljedece-dogadaje-za-obranu-velikog-pazuta/)) | Donja Dubrava (kod Legrada), MŽ | 30.05.2026 | protiv izgradnje megafarme pilića u blizini rezervata Veliki Pažut |
+| prosvjedni koncert “Drava se ne trži” | građanska inicijativa “Legrad – Donja Dubrava” ([H-alter](https://h-alter.org/vijesti/drava-se-ne-trzi-niti-ne-kupuje-gradani-pozivaju-na-sljedece-dogadaje-za-obranu-velikog-pazuta/), [HRT v.](https://www.youtube.com/watch?v=I4GzCu-zIp8)) | Donja Dubrava (kod Legrada), MŽ | 30.05.2026 | protiv izgradnje megafarme pilića u blizini rezervata Veliki Pažut |
 | prosvjed | učenici dubrovačke Pomorske škole ([Index](https://www.index.hr/vijesti/clanak/dubrovacki-maturanti-prosvjedovali-za-pritvorenog-kolegu-samo-je-odgurnuo-bengalku/2795696.aspx), [Jutarnji v.](https://www.youtube.com/watch?v=l_bC2W0A97Y)) | pred Općinskim sudom, Dubrovnik | 25.05.2026 | potpora učeniku pritvorenom zbog napada na policajaca |
 | mirno okupljanje | Udruga za bolju Hrvatsku ([HINA v.](https://www.youtube.com/watch?v=gulP9MtffIY)) | park Zrinjevac, Zagreb | 24.05.2026 | u čast tragično preminulog Luke Milovca |
 | “Hod za život” | ([HRT v.](https://www.youtube.com/watch?v=DYcneVFNPVU); [Jutarnji v.](https://www.youtube.com/watch?v=y1Lj4nKFEBE)) | Osijek; Zaprešić | 23.05.2026 | traže zakonsku zaštitu života od začeća |
