@@ -1,7 +1,8 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
 | prosvjedni marš “Hodaj za Liku” | građanska inicijativa “Gospić je naš dom” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/hodaj-za-liku/)) | Gospić | 27.06.2026 | zahtijevaju odgovornost države zbog nezakonite izgradnje tvornice litija i prikrivanja onečišćenja okoliša u Gospiću |
-| povorka ponosa | udruga “Zagreb Pride” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/25-povorka-ponosa-u-zagrebu-korak-po-korak-iskorak/)) | Zagreb | 06.06.2026 |  |
+| povorka ponosa | udruga “Zagreb Pride” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/25-povorka-ponosa-u-zagrebu-korak-po-korak-iskorak/)) | Zagreb | 06.06.2026 | |
+| prosvjedna “Šetnja za Pragrande” | građanska inicijativa “Protiv sječe!”, udruga “Zelena istra”, MO Gregovica ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/setnja-za-pragrande/)) | Narodni trg, Pula | 03.06.2026 | protiv asfaltiranja na području Pragrande |
 | mirni prosvjed i komemoracija | ([RTL v.](https://www.youtube.com/watch?v=rBhL2pxGlOE)) | Biograd na Moru | 31.05.2026 | traže promjene u pravosuđu i bolji nadzor opasnih kriminalaca nakon odslužene kazne |
 | prosvjedni koncert “Drava se ne trži” | građanska inicijativa “Legrad – Donja Dubrava” ([H-alter](https://h-alter.org/vijesti/rundek-cinkusi-i-mnogi-drugi-glazbenici-svirali-za-spas-hrvatske-od-megafarmi/), [HRT v.](https://www.youtube.com/watch?v=I4GzCu-zIp8)) | Donja Dubrava (kod Legrada), MŽ | 30.05.2026 | protiv izgradnje megafarme pilića u blizini rezervata Veliki Pažut |
 | prosvjed | učenici dubrovačke Pomorske škole ([Index](https://www.index.hr/vijesti/clanak/dubrovacki-maturanti-prosvjedovali-za-pritvorenog-kolegu-samo-je-odgurnuo-bengalku/2795696.aspx), [Jutarnji v.](https://www.youtube.com/watch?v=l_bC2W0A97Y)) | pred Općinskim sudom, Dubrovnik | 25.05.2026 | potpora učeniku pritvorenom zbog napada na policajaca |
