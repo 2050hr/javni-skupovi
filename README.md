@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| povorka ponosa “Split Pride” | ([H-alter](https://h-alter.org/sto-nas-ceka/split-pride-nije-me-mater-rodila-da-mucin/)) | Split | 27.06.2026 |  |
 | prosvjedni marš “Hodaj za Liku” | građanska inicijativa “Gospić je naš dom” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/hodaj-za-liku/)) | Gospić | 27.06.2026 | zahtijevaju odgovornost države zbog nezakonite izgradnje tvornice litija i prikrivanja onečišćenja okoliša u Gospiću |
 | povorka ponosa | udruga “Zagreb Pride” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/25-povorka-ponosa-u-zagrebu-korak-po-korak-iskorak/)) | Zagreb | 06.06.2026 | |
 | prosvjedna “Šetnja za Pragrande” | građanska inicijativa “Protiv sječe!”, udruga “Zelena istra”, MO Gregovica ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/setnja-za-pragrande/), [HRT v.](https://www.youtube.com/watch?v=NYtDvqKUm0Y); [HINA v.](https://www.youtube.com/watch?v=Gyt2hr9GJJo)) | Narodni trg, Pula | 03.06.2026 | protiv asfaltiranja na području Pragrande |
