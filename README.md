@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed “Stop okrutnosti prema životinjama” | udruga “Prijatelji životinja” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-stop-okrutnosti-prema-zivotinjama/)) | Trg kralja Tomislava, Zagreb | 27.06.2026 | zbog neučinkovitosti institucija koje dovode do nekažnjenog zlostavljanja, zanemarivanja i ubijanja životinja |
 | povorka ponosa “Split Pride” | ([H-alter](https://h-alter.org/sto-nas-ceka/split-pride-nije-me-mater-rodila-da-mucin/)) | Split | 27.06.2026 |  |
 | prosvjedni marš “Hodaj za Liku” | građanska inicijativa “Gospić je naš dom” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/hodaj-za-liku/)) | Gospić | 27.06.2026 | zahtijevaju odgovornost države zbog nezakonite izgradnje tvornice litija i prikrivanja onečišćenja okoliša u Gospiću |
 | prosvjed | stanovnici ulice Dugi dol ([Index](https://www.index.hr/vijesti/clanak/stanovnici-zagrebacke-ulice-bijesni-na-grad-postalo-je-nemoguce-za-zivjeti/2803483.aspx)) | Zagreb | 16.06.2026 | zbog svakodnevnog prometnog kaosa jer Sveučilišna klinika nema vlastita parkirna mjesta |
