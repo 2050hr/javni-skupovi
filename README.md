@@ -3,6 +3,7 @@
 | povorka ponosa “Split Pride” | ([H-alter](https://h-alter.org/sto-nas-ceka/split-pride-nije-me-mater-rodila-da-mucin/)) | Split | 27.06.2026 |  |
 | prosvjedni marš “Hodaj za Liku” | građanska inicijativa “Gospić je naš dom” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/hodaj-za-liku/)) | Gospić | 27.06.2026 | zahtijevaju odgovornost države zbog nezakonite izgradnje tvornice litija i prikrivanja onečišćenja okoliša u Gospiću |
 | prosvjed | građanska inicijativa “Gradimo Sinj planski, a ne stihijski” ([HRT v.](https://www.youtube.com/watch?v=OhFQNKpfGTU)) | Brnaze, SDŽ | 13.06.2026 | protiv planirane prometnice |
+| prosvjed | stanovnici ulice Dugi dol ([Index](https://www.index.hr/vijesti/clanak/stanovnici-zagrebacke-ulice-bijesni-na-grad-postalo-je-nemoguce-za-zivjeti/2803483.aspx)) | Zagreb | 16.06.2026 | zbog svakodnevnog prometnog kaosa jer Sveučilišna klinika nema vlastita parkirna mjesta |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=yjjhK8scH9I)) | Karlovac | 13.06.2026 | protiv rušenja drvoreda lipa |
 | povorka ponosa “Karlovac Pride” | ([Jutarnji v.](https://www.youtube.com/watch?v=-vIiWGhjvGI)) | Karlovac | 13.06.2026 |  |
 | skup | Zeleni odred ([Facebook](https://www.facebook.com/zeleniodredforum/posts/1037898425414592); [HRT v.](https://www.youtube.com/watch?v=ytbRtXQN920), [Facebook](https://www.facebook.com/zeleniodredforum/posts/1039602258577542)) | Mukalba, Medulin | 10.06.2026 | traže zatvaranje nelegalnog ŽCGO Kaštijun |
