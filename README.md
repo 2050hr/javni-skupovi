@@ -1,7 +1,7 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
 | prosvjed “Stop okrutnosti prema životinjama” | udruga “Prijatelji životinja” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-stop-okrutnosti-prema-zivotinjama/)) | Trg kralja Tomislava, Zagreb | 27.06.2026 | zbog neučinkovitosti institucija koje dovode do nekažnjenog zlostavljanja, zanemarivanja i ubijanja životinja |
-| povorka ponosa “Split Pride” | ([H-alter](https://h-alter.org/sto-nas-ceka/split-pride-nije-me-mater-rodila-da-mucin/)) | Split | 27.06.2026 |  |
+| povorka ponosa “Split Pride” | ([H-alter](https://h-alter.org/vijesti/split-pride-2026-lgbtiq-mladi-i-dalje-odrastaju-u-skolama-koje-o-njima-sute/)) | Split | 27.06.2026 | traže dodatnu edukaciju i veću podršku za nastavno osoblje u školama te uključivanje tema o LGBTIQ+ osobama u razgovore o društvu, ljudskim pravima i kulturi |
 | prosvjedni marš “Hodaj za Liku” | građanska inicijativa “Gospić je naš dom” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/hodaj-za-liku/)) | Gospić | 27.06.2026 | zahtijevaju odgovornost države zbog nezakonite izgradnje tvornice litija i prikrivanja onečišćenja okoliša u Gospiću |
 | prosvjed | A-HSP ([Index](https://www.index.hr/vijesti/clanak/keleminec-ponovno-prosvjedovao-pred-kucom-dezulovicevih-policija-ga-privela/2804972.aspx)) | Split | 20.06.2026 | protiv Borisa Dežulovića zbog njegovih tekstova u tjedniku Novosti |
 | prosvjed | Zelena akcija, Prijatelji životinja ([Pixsell v.](https://www.youtube.com/watch?v=RkfvN1FxMJg)) | ispred NSK, Zagreb | 18.06.2026 | protiv izgradnje megafarmi pilića |
