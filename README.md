@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| akcija “Jednaka prava za sve nastavnike!” | Nezavisni sindikat znanosti i visokog obrazovanja ([RTL v.](https://www.youtube.com/watch?v=1vRrGg7L3JA)) | ispred Ministarstva obrazovanja, Zagreb | 07.07.2026 | dio nastavnika nema jednake šanse u obrazovanju |
 | performans | Zelena akcija ([HINA v.](https://www.youtube.com/watch?v=QN-IARjaxlk)) | Trg kralja Tomislava, Zagreb | 03.07.2026 | u sklopu kampanje “Srpanj bez plastike” te u povodu Međunarodnog dana bez plastičnih vrećica |
 | prosvjed | veterinari, stočari, poduzetnici ([HRT v.](https://www.youtube.com/watch?v=Cf_xewkBb2s)) | ispred Ministarstva poljoprivrede, Zagreb | 01.07.2026 | zbog nepravednog natječaja za dodjelu poslova javnih ovlasti u veterinarstvu |
 | prosvjed “Stop okrutnosti prema životinjama” | udruga “Prijatelji životinja” ([H-alter](https://h-alter.org/vijesti/prosvjed-za-zivotinje-u-zagrebu-ako-danas-sutimo-sutra-cemo-ponovno-brojati-zrtve/), [HRT v.](https://www.youtube.com/watch?v=ieaNtWJRObM)) | Trg kralja Tomislava, Zagreb | 27.06.2026 | zbog neučinkovitosti institucija koje dovode do nekažnjenog zlostavljanja, zanemarivanja i ubijanja životinja; traže osnivanje specijalizirane inspekcije isključivo za zaštitu životinja |
