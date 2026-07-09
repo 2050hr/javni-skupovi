@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| mirni prosvjed | stanovnici Kaprija i Žirja ([HRT](https://vijesti.hrt.hr/hrvatska/stanovnici-kaprija-i-zirja-protive-se-uzgajalistu-tune-12808121)) |  | 09.07.2026 | traže da se planirane lokacije za uzgajalište ribe premjeste dalje od njihovih otoka | 
 | akcija “Jednaka prava za sve nastavnike!” | Nezavisni sindikat znanosti i visokog obrazovanja ([RTL v.](https://www.youtube.com/watch?v=1vRrGg7L3JA)) | ispred Ministarstva obrazovanja, Zagreb | 07.07.2026 | dio nastavnika nema jednake šanse u obrazovanju |
 | performans | Zelena akcija ([HINA v.](https://www.youtube.com/watch?v=QN-IARjaxlk)) | Trg kralja Tomislava, Zagreb | 03.07.2026 | u sklopu kampanje “Srpanj bez plastike” te u povodu Međunarodnog dana bez plastičnih vrećica |
 | prosvjed | veterinari, stočari, poduzetnici ([HRT v.](https://www.youtube.com/watch?v=Cf_xewkBb2s)) | ispred Ministarstva poljoprivrede, Zagreb | 01.07.2026 | zbog nepravednog natječaja za dodjelu poslova javnih ovlasti u veterinarstvu |
