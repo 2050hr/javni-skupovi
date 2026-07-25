@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| akcija | građanska inicijativa “Gospić je naš dom” ([Facebook](https://www.facebook.com/permalink.php?story_fbid=122191700552779210&id=61573376313480)) | autocesta A1 | 25.07.2026 | podizanje svijesti javnosti (domaćih i stranih putnika) o problemu nezakonito odloženog otpada u Lici |
 | mirni prosvjed | stanovnici Kaprija i Žirja ([HRT v.](https://www.youtube.com/watch?v=r-wUcru3WIY)) |  | 09.07.2026 | traže da se planirane lokacije za uzgajalište ribe premjeste dalje od njihovih otoka | 
 | akcija “Jednaka prava za sve nastavnike!” | Nezavisni sindikat znanosti i visokog obrazovanja ([RTL v.](https://www.youtube.com/watch?v=1vRrGg7L3JA)) | ispred Ministarstva obrazovanja, Zagreb | 07.07.2026 | dio nastavnika nema jednake šanse u obrazovanju |
 | performans | Zelena akcija ([HINA v.](https://www.youtube.com/watch?v=QN-IARjaxlk)) | Trg kralja Tomislava, Zagreb | 03.07.2026 | u sklopu kampanje “Srpanj bez plastike” te u povodu Međunarodnog dana bez plastičnih vrećica |
