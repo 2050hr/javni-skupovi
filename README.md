@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | ([HRT v.](https://www.youtube.com/watch?v=JJRpttfMie8)) | Radašinovci | 28.07.2026 | traže proširenje ceste kroz selo s 4 na 5 metara |
 | akcija | građanska inicijativa “Gospić je naš dom” ([Facebook](https://www.facebook.com/permalink.php?story_fbid=122191700552779210&id=61573376313480), [HRT v.](https://www.youtube.com/watch?v=LS7ckCBgtGk)) | autocesta A1 | 25.07.2026 | podizanje svijesti javnosti (domaćih i stranih putnika) o problemu nezakonito odloženog otpada u Lici |
 | mirni prosvjed | stanovnici Kaprija i Žirja ([HRT v.](https://www.youtube.com/watch?v=r-wUcru3WIY)) |  | 09.07.2026 | traže da se planirane lokacije za uzgajalište ribe premjeste dalje od njihovih otoka | 
 | akcija “Jednaka prava za sve nastavnike!” | Nezavisni sindikat znanosti i visokog obrazovanja ([RTL v.](https://www.youtube.com/watch?v=1vRrGg7L3JA)) | ispred Ministarstva obrazovanja, Zagreb | 07.07.2026 | dio nastavnika nema jednake šanse u obrazovanju |
