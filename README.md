@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | ([HRT v.](https://www.youtube.com/watch?v=Ertm03934eU)) | općina Andrijaševci | 31.08.2026 | zbog drastičnog poskupljenja odvoza otpada |
 | prosvjed | udruga “Gospić bez otrova” ([Nacional](https://www.nacional.hr/zbog-opasnog-otpada-nekoliko-stotina-gradana-medu-kojima-su-i-politicari-okupljeno-na-prosvjedu-u-gospicu/), [VIDA v.](https://www.youtube.com/watch?v=7i9hzOgxvSY)) | Trg Stjepana Radića, Gospić | 16.08.2026 | negodovanje zbog odlaganja opasnog otpada u Lici |
 | antiratna akcija | Centar za žene žrtve rata Rosa, UDIK, Centar za građansku hrabrost, Documenta i Ženska mreža Hrvatske ([Index](https://www.index.hr/vijesti/clanak/na-jelacicevom-trgu-rasirili-transparent-zlocini-u-oluji-su-odgovornost-svih-nas/2820273.aspx), [Jutarnji v.](https://www.youtube.com/watch?v=F25occYyYe8)) | Trg bana Jelačića, Zagreb | 03.08.2026 | upozoravaju na višedesetljetno negiranje i prešućivanje zločina koje su nad sugrađanima srpske nacionalnosti počinili pripadnici hrvatskih snaga |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=JJRpttfMie8)) | Radašinovci | 28.07.2026 | traže proširenje ceste kroz selo s 4 na 5 metara |
