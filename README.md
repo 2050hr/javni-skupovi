@@ -1,6 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
-| “Hod za život” | | Šibenik ([Pixsell v.](https://www.youtube.com/watch?v=Ro6vl21QkUA)) | 05.09.2026 | |
+| “Hod za život” | ([Pixsell v.](https://www.youtube.com/watch?v=Ro6vl21QkUA)) | Šibenik | 05.09.2026 | |
 | prosvjed “Hodaj za Liku, hodaj za Hrvatsku” | građanska inicijativa “Gospić je naš dom” ([H-alter](https://h-alter.org/planet-zemlja/sta-niste-pokrali-to-ste-potrovali/), [RTL v.](https://www.youtube.com/watch?v=c_itdQchCPU); [HRT v.](https://www.youtube.com/watch?v=c4zVIqCr4Kc)) | Trg bana Jelačića, Zagreb; Dubrovnik | 05.09.2026 | zbog dugogodišnjeg ignoriranja problema ilegalnog odlaganja opasnog otpada |
 | prosvjed | bivši radnici Salonita ([Index](https://www.index.hr/vijesti/clanak/radnici-salonita-prosvjedovali-jer-ih-drzava-zeli-prevariti-zasto-nam-se-to-radi/2830341.aspx)) | Vranjic | 02.09.2026 | zbog novog prijedloga zakona o odšteti za izloženost azbestu koji izostavlja dio radnika |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=Ertm03934eU)) | općina Andrijaševci | 31.08.2026 | zbog drastičnog poskupljenja odvoza otpada |
