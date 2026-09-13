@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| “Hod za slobodu” | inicijativa “Građanke i građani Rijeke” ([H-alter](https://h-alter.org/vijesti/nas-izbor-nas-zakon-stotine-gradanki-i-gradana-na-rijeckom-hodu-za-slobodu/)) | Rijeka | 12.09.2026 | za obranu reproduktivnih prava i tjelesne autonomije; odgovor na “Hod za život” |
 | “Hod za život” | ([Pixsell v.](https://www.youtube.com/watch?v=LX48Qr0qtNQ)) | Rijeka | 06.09.2026 | |
 | “Hod za život” | ([Pixsell v.](https://www.youtube.com/watch?v=Ro6vl21QkUA)) | Šibenik | 05.09.2026 | |
 | prosvjed “Hodaj za Liku, hodaj za Hrvatsku” | građanska inicijativa “Gospić je naš dom” ([H-alter](https://h-alter.org/planet-zemlja/sta-niste-pokrali-to-ste-potrovali/), [RTL v.](https://www.youtube.com/watch?v=c_itdQchCPU); [HRT v.](https://www.youtube.com/watch?v=c4zVIqCr4Kc)) | Trg bana Jelačića, Zagreb; Dubrovnik | 05.09.2026 | zbog dugogodišnjeg ignoriranja problema ilegalnog odlaganja opasnog otpada |
