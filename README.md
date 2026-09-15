@@ -1,3 +1,5 @@
+[19.9./Ludbreg](https://klimatski.hr/2026/09/15/najavljen-novi-prosvjed-protiv-pilicarske-ekobombe/)
+
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
 | prosvjed | udruga “Roditelji za djecu” ([HRT v.](https://www.youtube.com/watch?v=AlB4DOWbE9o)) | ispred Elektrotehničke škole, Zagreb | 14.09.2026 | traže veću sigurnost u školama |
