@@ -1,5 +1,6 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | udruga “Roditelji za djecu” ([HRT v.](https://www.youtube.com/watch?v=AlB4DOWbE9o)) | ispred Elektrotehničke škole, Zagreb | 14.09.2026 | traže veću sigurnost u školama |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=K0sn1acO76c)) | Blato na Cetini | 12.09.2026 | zbog planirane vjetroelektrane Brda-Umovi |
 | prosvjed | roditelji i učenici OŠ Ivana Gorana Kovačića i 18. gimnazije ([RTL v.](https://www.youtube.com/watch?v=N_uSGTM1kLI)) | Šalata, Zagreb | 12.09.2026 | zbog spore obnove školske zgrade |
 | “Hod za slobodu” | inicijativa “Građanke i građani Rijeke” ([H-alter](https://h-alter.org/vijesti/nas-izbor-nas-zakon-stotine-gradanki-i-gradana-na-rijeckom-hodu-za-slobodu/), [VIDA v.](https://www.youtube.com/watch?v=dG_Fu10W2sE)) | Rijeka | 12.09.2026 | za obranu reproduktivnih prava i tjelesne autonomije; odgovor na “Hod za život” |
