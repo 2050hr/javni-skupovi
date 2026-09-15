@@ -1,4 +1,4 @@
-15.9./Raša [Zeleni](https://www.facebook.com/zeleniodredforum/posts/1121057920431975), 19.9./Ludbreg [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-u-ludbregu-ne-magafarmi-pilica-u-apatiji/) [Klimatski](https://klimatski.hr/2026/09/15/najavljen-novi-prosvjed-protiv-pilicarske-ekobombe/)
+15.9. Raša [Zeleni](https://www.facebook.com/zeleniodredforum/posts/1121057920431975), 19.9. Ludbreg [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-u-ludbregu-ne-magafarmi-pilica-u-apatiji/) [Klimatski](https://klimatski.hr/2026/09/15/najavljen-novi-prosvjed-protiv-pilicarske-ekobombe/)
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
