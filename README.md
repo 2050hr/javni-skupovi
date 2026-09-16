@@ -1,7 +1,8 @@
-15.9. Raša [Zeleni](https://www.facebook.com/zeleniodredforum/posts/1121057920431975), 19.9. Ludbreg [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-u-ludbregu-ne-magafarmi-pilica-u-apatiji/) [Klimatski](https://klimatski.hr/2026/09/15/najavljen-novi-prosvjed-protiv-pilicarske-ekobombe/)
+19.9. Ludbreg [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-u-ludbregu-ne-magafarmi-pilica-u-apatiji/) [Klimatski](https://klimatski.hr/2026/09/15/najavljen-novi-prosvjed-protiv-pilicarske-ekobombe/)
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | ([HINA v.](https://www.youtube.com/watch?v=AWY_VajOYVo)) | općina Raša, IŽ | 15.09.2026 | protiv spaljivanja otpada u cementari Holcim u Koromačnu |
 | prosvjed | udruga “Roditelji za djecu” ([HRT v.](https://www.youtube.com/watch?v=AlB4DOWbE9o)) | ispred Elektrotehničke škole, Zagreb | 14.09.2026 | traže veću sigurnost u školama |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=K0sn1acO76c)) | Blato na Cetini | 12.09.2026 | zbog planirane vjetroelektrane Brda-Umovi |
 | prosvjed | roditelji i učenici OŠ Ivana Gorana Kovačića i 18. gimnazije ([RTL v.](https://www.youtube.com/watch?v=N_uSGTM1kLI)) | Šalata, Zagreb | 12.09.2026 | zbog spore obnove školske zgrade |
