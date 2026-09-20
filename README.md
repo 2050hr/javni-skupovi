@@ -2,7 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
-| prosvjed | ([H-alter](https://h-alter.org/planet-zemlja/apatija-se-ne-predaje/)) | Ludbreg | 19.09.2026 | protiv izgradnje megafarme pilića u Apatiji |
+| prosvjed | ([H-alter](https://h-alter.org/planet-zemlja/apatija-se-ne-predaje/), [RTL v.](https://www.youtube.com/watch?v=gkeK0JQRalI)) | Ludbreg | 19.09.2026 | protiv izgradnje megafarme pilića u Apatiji |
 | prosvjed | ([HINA v.](https://www.youtube.com/watch?v=AWY_VajOYVo)) | općina Raša, IŽ | 15.09.2026 | protiv spaljivanja otpada u cementari Holcim u Koromačnu |
 | prosvjed | udruga “Roditelji za djecu” ([HRT v.](https://www.youtube.com/watch?v=AlB4DOWbE9o)) | ispred Elektrotehničke škole, Zagreb | 14.09.2026 | traže veću sigurnost u školama |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=K0sn1acO76c)) | Blato na Cetini | 12.09.2026 | zbog planirane vjetroelektrane Brda-Umovi |
