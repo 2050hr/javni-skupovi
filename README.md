@@ -2,6 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | ([24 sata](https://www.24sata.hr/news/foto-prosvjed-u-nasicama-zbog-spaljivanja-otpada-iz-gospica-ne-trgujte-nasim-zdravljem-1155407), [RTL v.](https://www.youtube.com/watch?v=EzyZYwTk9Io)) | Našice | 19.09.2026 | protiv spaljivanja otpada iz Gospića u Cementari Nexe |
 | prosvjed | ([H-alter](https://h-alter.org/planet-zemlja/apatija-se-ne-predaje/), [RTL v.](https://www.youtube.com/watch?v=gkeK0JQRalI)) | Ludbreg | 19.09.2026 | protiv izgradnje megafarme pilića u Apatiji |
 | prosvjed | ([HINA v.](https://www.youtube.com/watch?v=AWY_VajOYVo)) | općina Raša, IŽ | 15.09.2026 | protiv spaljivanja otpada u cementari Holcim u Koromačnu |
 | prosvjed | udruga “Roditelji za djecu” ([HRT v.](https://www.youtube.com/watch?v=AlB4DOWbE9o)) | ispred Elektrotehničke škole, Zagreb | 14.09.2026 | traže veću sigurnost u školama |
