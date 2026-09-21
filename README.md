@@ -1,4 +1,4 @@
-22.9. Novi Golubovec [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-protiv-otvaranja-novog-kamenoloma-u-novom-golubovcu/)
+22.9. Novi Golubovec [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-protiv-otvaranja-novog-kamenoloma-u-novom-golubovcu/); 26.9. ŽCGO Kaštijun [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/8-godina-je-dosta-idi-ca-kastijun/)
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
