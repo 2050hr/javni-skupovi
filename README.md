@@ -2,6 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | inicijativa “Za Novi Golubovec” ([HRT v.](https://www.youtube.com/watch?v=kXDKY67TR98)) | Novi Golubovec (KZŽ) | 22.09.2026 | protiv otvaranja novog kamenoloma u Novom Golubovcu |
 | mimohod | ([HRT v.](https://www.youtube.com/watch?v=qcragO2hL3A)) | Pula | 22.09.2026 | Nacionalni dan borbe protiv nasilja nad ženama |
 | mirni prosvjed | ([HRT v.](https://www.youtube.com/watch?v=BitJE8Y6tN4)) | Krković (ŠKŽ) | 21.09.2026 | protiv ponovnog pokretanja kamenoloma “Velika Kremenica” |
 | akcija | “Ženska mreža Hrvatske” i druge udruge ([H-alter](https://h-alter.org/foto-galerija/dok-god-su-zrtve-bezimene-sustav-ih-ni-ne-cuje/), [HRT v.](https://www.youtube.com/watch?v=DKHD9qSAF4M)) | u 17 gradova | 21.09.2026 | kako bi upozorili na nedostatke sustava u zaštiti žena od obiteljskog nasilja; uoči Nacionalnog dana borbe protiv nasilja nad ženama | 
