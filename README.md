@@ -2,6 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | ([HRT v.](https://www.youtube.com/watch?v=zVrI1aLQX0g)) | općina Tisno | 26.09.2026 | protiv ilegalnog odlagališta |
 | prosvjed | udruga “Zelena Istra” i građanska inicijativa “Čist zrak duga ljubav” ([HRT v.](https://www.youtube.com/watch?v=eUvlxUXX1YE)) | ispred Kaštijuna | 26.09.2026 | traže zatvaranje županijskog centra za gospodarenje otpadom Kaštijun |
 | “Hod za život” | ([H-alter](https://h-alter.org/vijesti/mlade-pulezanke-i-pulezani-blokirali-hod-za-zivot/)) | Pula | 26.09.2026 | |
 | prosvjedna šetnja | inicijativa “Za Novi Golubovec” ([RTL v.](https://www.youtube.com/watch?v=XIhkma8hJgc)) | Novi Golubovec (KZŽ) | 22.09.2026 | protiv otvaranja novog kamenoloma u Novom Golubovcu |
