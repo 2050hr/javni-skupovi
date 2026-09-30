@@ -1,4 +1,4 @@
-26.9. Zagreb [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/setnja-antiratna-kampanja-i-arkzin-na-ulicama-zagreba-ljudska-prava-za-vrijeme-rata/)
+26.9. Zagreb [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/setnja-antiratna-kampanja-i-arkzin-na-ulicama-zagreba-ljudska-prava-za-vrijeme-rata/); “Kritična masa” 30.9. Zagreb [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/biciklisticka-kriticna-masa-u-zagrebu/)
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
