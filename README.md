@@ -2,6 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | roditelji ([HRT](https://www.youtube.com/watch?v=IC4dUvP335M)) | Karlovac | 01.10.2026 | zbog prespore obnove osnovne škole Dragojle Jarnević |
 | prosvjed | “Inicijativa za ujedinjenu Labinštinu” ([HRT v.](https://www.youtube.com/watch?v=ieUnVeTP3DA)) | cementara Holcim, Koromačno | 28.06.2026 | žele zaustaviti rad tvornice i spriječiti spaljivanje otpada | 
 | prosvjed | ([RTL v.](https://www.youtube.com/watch?v=eNvfZSFYzDI)) | općina Tisno | 26.09.2026 | zbog ilegalnog odlagališta |
 | prosvjed | udruga “Zelena Istra” i građanska inicijativa “Čist zrak duga ljubav” ([HRT v.](https://www.youtube.com/watch?v=eUvlxUXX1YE)) | ispred Kaštijuna | 26.09.2026 | traže zatvaranje županijskog centra za gospodarenje otpadom Kaštijun |
