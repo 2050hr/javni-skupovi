@@ -3,7 +3,7 @@
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
 | “Hod za život” | ([Jutarnji v.](https://www.youtube.com/watch?v=v8sahilwqHc)) | Varaždin | 03.10.2026 | |
-| prosvjed | A-HSP ([Index](https://www.index.hr/vijesti/clanak/video-keleminec-ispred-stana-katarine-peovica-ona-uz-gitaru-zapjevala-bella-ciao/2841602.aspx)) | ispred stana Katarine Peović, Zagreb | 03.10.2026 | smatraju da Katarina Peović veliča komunizam i promiče prosrpsku politiku |
+| prosvjed | A-HSP ([Index](https://www.index.hr/vijesti/clanak/video-keleminec-ispred-stana-katarine-peovica-ona-uz-gitaru-zapjevala-bella-ciao/2841602.aspx), [VIDA v.](https://www.youtube.com/watch?v=j6m0R_Yq9bw)) | ispred stana Katarine Peović, Zagreb | 03.10.2026 | smatraju da Katarina Peović veliča komunizam i promiče prosrpsku politiku |
 | okupljanje | roditelji ([HRT](https://www.youtube.com/watch?v=IC4dUvP335M)) | Karlovac | 01.10.2026 | zbog prespore obnove osnovne škole Dragojle Jarnević |
 | prosvjed | “Inicijativa za ujedinjenu Labinštinu” ([HRT v.](https://www.youtube.com/watch?v=ieUnVeTP3DA)) | cementara Holcim, Koromačno | 28.06.2026 | žele zaustaviti rad tvornice i spriječiti spaljivanje otpada | 
 | prosvjed | ([RTL v.](https://www.youtube.com/watch?v=eNvfZSFYzDI)) | općina Tisno | 26.09.2026 | zbog ilegalnog odlagališta |
