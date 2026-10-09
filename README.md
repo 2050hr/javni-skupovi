@@ -1,4 +1,4 @@
-prosvjed osobni asistenti 3.12.
+Koprivnica, protiv megafarmi 17.10. [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-u-koprivnici-protiv-megafarmi-ni-podravini-nije-ravno-sjever-protiv-megafarmi/); prosvjed osobni asistenti 3.12.
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
