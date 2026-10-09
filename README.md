@@ -2,6 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| akcija | Regionalni industrijski sindikat ([HINA v.](https://www.youtube.com/watch?v=TZtoPgpWiUY)) | ispred Ministarstva rada, Zagreb | 08.10.2026 | povodom Dana osobnih asistenata |
 | mirni prosvjed | Hrvatska asocijacija logopeda poduzetnika ([H-alter](https://h-alter.org/vijesti/logopedi-ispred-ministarstva-zdravstva-upozoravaju-7-000-korisnika-moglo-bi-ostati-bez-mjesta-za-terapiju/), [RTL v.](https://www.youtube.com/watch?v=Zza3fKAgav4)) | ispred Ministarstva zdravstva, Zagreb | 07.10.2026 | kako bi upozorili na štetne posljedice novog prijedloga normativa |
 | “Hod za život” | ([Jutarnji v.](https://www.youtube.com/watch?v=v8sahilwqHc)) | Varaždin | 03.10.2026 | |
 | prosvjed | A-HSP ([Index](https://www.index.hr/vijesti/clanak/video-keleminec-ispred-stana-katarine-peovica-ona-uz-gitaru-zapjevala-bella-ciao/2841602.aspx), [VIDA v.](https://www.youtube.com/watch?v=j6m0R_Yq9bw)) | ispred stana Katarine Peović, Zagreb | 03.10.2026 | smatraju da Katarina Peović veliča komunizam i promiče prosrpsku politiku |
