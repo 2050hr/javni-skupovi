@@ -1,4 +1,4 @@
-“Kritična masa” 3.10. Zagreb [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/biciklisticka-kriticna-masa-u-zagrebu/); prosvjed osobni asistenti 3.12.
+prosvjed osobni asistenti 3.12.
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
