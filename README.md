@@ -1,5 +1,5 @@
-10.10. “Dosta je nameta”, prosvjed, Zagreb, poduzetnici i iznajmljivači [RTL v.](https://www.youtube.com/watch?v=gynB_I2PMXY)
-17.10. Koprivnica, protiv megafarmi [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-u-koprivnici-protiv-megafarmi-ni-podravini-nije-ravno-sjever-protiv-megafarmi/)
+10.10. “Dosta je nameta”, prosvjed, Zagreb, poduzetnici i iznajmljivači [RTL v.](https://www.youtube.com/watch?v=gynB_I2PMXY)  
+17.10. Koprivnica, protiv megafarmi [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-u-koprivnici-protiv-megafarmi-ni-podravini-nije-ravno-sjever-protiv-megafarmi/)  
 03.12. prosvjed, osobni asistenti
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
