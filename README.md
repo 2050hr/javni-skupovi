@@ -4,6 +4,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | obrtnici, poduzetnici, mali iznajmljivači ([RTL v.](https://www.youtube.com/watch?v=crFW5tL7f0g)) | Zrinjevac, Zagreb | 10.10.20206 | traže smanjenje poreznog opterećenja, povećanje osobnog odbitka, ukidanje sidrenih cijena, ukidanje obveznih članarina, smanjenje birokracije |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=Ia1yA3R-YM0)) | Našice | 10.10.2026 | protiv spaljivanja neopasnog otpada iz Gospića u cementari “Nexe” |
 | prosvjed | “Inicijativa za slobodnu Palestinu” ([PIXSELL v.](https://www.youtube.com/watch?v=GeWU3mHoQBQ)) | ispred izraelskog veleposlanstva, Zagreb | 10.10.2026 | “Stop genocidu! Stop nekažnjivosti! Sloboda Palestini!” |
 | akcija | Regionalni industrijski sindikat ([RTL v.](https://www.youtube.com/watch?v=fI5z07g93lA)) | ispred Ministarstva rada, Zagreb | 08.10.2026 | povodom Dana osobnih asistenata |
