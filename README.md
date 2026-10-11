@@ -4,6 +4,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | ([HRT v.](https://www.youtube.com/watch?v=Ia1yA3R-YM0)) | Našice | 10.10.2026 | protiv spaljivanja neopasnog otpada iz Gospića u cementari “Nexe” |
 | prosvjed | “Inicijativa za slobodnu Palestinu” ([PIXSELL v.](https://www.youtube.com/watch?v=GeWU3mHoQBQ)) | ispred izraelskog veleposlanstva, Zagreb | 10.10.2026 | “Stop genocidu! Stop nekažnjivosti! Sloboda Palestini!” |
 | akcija | Regionalni industrijski sindikat ([RTL v.](https://www.youtube.com/watch?v=fI5z07g93lA)) | ispred Ministarstva rada, Zagreb | 08.10.2026 | povodom Dana osobnih asistenata |
 | mirni prosvjed | Hrvatska asocijacija logopeda poduzetnika ([H-alter](https://h-alter.org/vijesti/logopedi-ispred-ministarstva-zdravstva-upozoravaju-7-000-korisnika-moglo-bi-ostati-bez-mjesta-za-terapiju/), [RTL v.](https://www.youtube.com/watch?v=Zza3fKAgav4)) | ispred Ministarstva zdravstva, Zagreb | 07.10.2026 | kako bi upozorili na štetne posljedice novog prijedloga normativa |
