@@ -4,6 +4,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjedna akcija | Zelena akcija, Prijatelji životinja, Greenpeace ([H-alter](https://h-alter.org/vijesti/zaustavimo-ovo-srae-aktivisti-ispred-megafarme-peradi-koja-prijeti-europskoj-amazoni-na-sjeveru-hrvatske/)) | ispred  peradarske megafarme, Veliki Pažut | 13.10.2026 | traže hitno zaustavljanje probnog rada megafarme te obustavu izdavanja uporabne dozvole |
 | prosvjed | obrtnici, poduzetnici, mali iznajmljivači ([N1](https://n1info.hr/vijesti/prosvjed-poduzetnika-i-iznajmljivaca-na-zagrebackom-zrinjevcu/), [RTL v.](https://www.youtube.com/watch?v=crFW5tL7f0g)) | Zrinjevac, Zagreb | 10.10.20206 | traže smanjenje poreznog opterećenja, povećanje osobnog odbitka, ukidanje sidrenih cijena, ukidanje obveznih članarina, smanjenje birokracije |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=Ia1yA3R-YM0)) | Našice | 10.10.2026 | protiv spaljivanja neopasnog otpada iz Gospića u cementari “Nexe” |
 | prosvjed | “Inicijativa za slobodnu Palestinu” ([PIXSELL v.](https://www.youtube.com/watch?v=GeWU3mHoQBQ)) | ispred izraelskog veleposlanstva, Zagreb | 10.10.2026 | “Stop genocidu! Stop nekažnjivosti! Sloboda Palestini!” |
