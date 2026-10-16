@@ -1,4 +1,3 @@
-15.10. Zeleni odred, prosvjed, Pazin, protiv trovanja sa Kaštijuna, Holcima i Rockwoola [Facebook](https://www.facebook.com/zeleniodredforum/posts/1150372087500558)  
 17.10. Koprivnica, protiv megafarmi [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-u-koprivnici-protiv-megafarmi-ni-podravini-nije-ravno-sjever-protiv-megafarmi/) - Mačkovec [Facebook](https://www.facebook.com/Zelenaakcija/posts/1510072417834560)  
 03.12. prosvjed, osobni asistenti
 
