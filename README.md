@@ -3,6 +3,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | ([Podravski](https://podravski.hr/foto-video-nikad-nije-kasno-za-borbu-protiv-gradnje-velikih-farmi-pilica/)) | Koprivniza | 17.10.2026 | protiv izgradnje i rada velikih farmi peradi (megafarmi) |
 | prosvjed | udruga “Zeleni odred” ([HRT v.](https://www.youtube.com/watch?v=Jf3wK8VGcnA)) | Pazin | 15.10.2026 | traže zatvaranje ŽCGO-a Kaštijun |
 | prosvjedna akcija | Zelena akcija, Prijatelji životinja, Greenpeace ([H-alter](https://h-alter.org/vijesti/zaustavimo-ovo-srae-aktivisti-ispred-megafarme-peradi-koja-prijeti-europskoj-amazoni-na-sjeveru-hrvatske/), [HRT v.](https://www.youtube.com/watch?v=rAljt_vRXsk)) | ispred  peradarske megafarme, Veliki Pažut | 13.10.2026 | traže hitno zaustavljanje probnog rada megafarme te obustavu izdavanja uporabne dozvole |
 | prosvjed | obrtnici, poduzetnici, mali iznajmljivači ([N1](https://n1info.hr/vijesti/prosvjed-poduzetnika-i-iznajmljivaca-na-zagrebackom-zrinjevcu/), [RTL v.](https://www.youtube.com/watch?v=crFW5tL7f0g)) | Zrinjevac, Zagreb | 10.10.20206 | traže smanjenje poreznog opterećenja, povećanje osobnog odbitka, ukidanje sidrenih cijena, ukidanje obveznih članarina, smanjenje birokracije |
