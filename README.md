@@ -2,7 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
-| prosvjed | ([RTL v.](https://www.youtube.com/watch?v=etcUGdrYNfg)) | Pisarovina | 17.10.2026 | zbog smrada |
+| prosvjed | ([RTL v.](https://www.youtube.com/watch?v=etcUGdrYNfg)) | Pisarovina | 17.10.2026 | zbog nesnosnog smrada |
 | prosvjed | udruge “Prijatelji životinja”, “Zelena akcija” i “Šinterice dobra srca” ([H-alter](https://h-alter.org/vijesti/ne-megafarmama-koprivnica/), [RTL v.](https://www.youtube.com/watch?v=fckeepLcaw4)) | Koprivnica | 17.10.2026 | protiv izgradnje i rada velikih farmi peradi (megafarmi) |
 | prosvjed | udruga “Zeleni odred” ([HRT v.](https://www.youtube.com/watch?v=Jf3wK8VGcnA)) | Pazin | 15.10.2026 | traže zatvaranje ŽCGO-a Kaštijun |
 | prosvjedna akcija | Zelena akcija, Prijatelji životinja, Greenpeace ([H-alter](https://h-alter.org/vijesti/zaustavimo-ovo-srae-aktivisti-ispred-megafarme-peradi-koja-prijeti-europskoj-amazoni-na-sjeveru-hrvatske/), [HRT v.](https://www.youtube.com/watch?v=rAljt_vRXsk)) | ispred  peradarske megafarme, Veliki Pažut | 13.10.2026 | traže hitno zaustavljanje probnog rada megafarme te obustavu izdavanja uporabne dozvole |
