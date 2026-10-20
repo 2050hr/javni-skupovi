@@ -2,6 +2,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | ([HRT v.](https://www.youtube.com/watch?v=ckUC0mmG5QY)) | Rijeka | 19.10.2026 | traže hitnu sanaciju štete na Klobučarićevu trgu |
 | prosvjed | ([RTL v.](https://www.youtube.com/watch?v=etcUGdrYNfg)) | Pisarovina | 17.10.2026 | zbog nepodnošljivog smrada |
 | prosvjed | udruge “Prijatelji životinja”, “Zelena akcija” i “Šinterice dobra srca” ([H-alter](https://h-alter.org/vijesti/ne-megafarmama-koprivnica/), [RTL v.](https://www.youtube.com/watch?v=fckeepLcaw4)) | Koprivnica | 17.10.2026 | protiv izgradnje i rada velikih farmi peradi (megafarmi) |
 | prosvjed | udruga “Zeleni odred” ([HRT v.](https://www.youtube.com/watch?v=Jf3wK8VGcnA)) | Pazin | 15.10.2026 | traže zatvaranje ŽCGO-a Kaštijun |
