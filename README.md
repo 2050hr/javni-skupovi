@@ -1,3 +1,4 @@
+23.10. prosvjed, Koromačno, protiv spaljivanja otpada u cementari [Labin](https://www.labin.com/vijesti/pulski-punkeri-krecu-u-koromacno-todor-pozvao-126668)
 03.12. prosvjed, osobni asistenti
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
