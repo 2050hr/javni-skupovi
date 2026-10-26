@@ -1,4 +1,3 @@
-23.10. prosvjed, Koromačno, protiv spaljivanja otpada u cementari [Labin](https://www.labin.com/vijesti/pulski-punkeri-krecu-u-koromacno-todor-pozvao-126668)  
 31.10. prosvjed, Pampas Osijek, “Za zeleni Pampas! Za zeleni Osijek! Protiv betonizacije!” [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-zeleni-pampas-za-zeleni-osijek-protiv-betonizacije/)  
 03.12. prosvjed, osobni asistenti
 
