@@ -1,4 +1,5 @@
 31.10. prosvjed, Pampas Osijek, “Za zeleni Pampas! Za zeleni Osijek! Protiv betonizacije!” [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-zeleni-pampas-za-zeleni-osijek-protiv-betonizacije/)  
+07.11. povorka, Labin, Građanska inicijativa za ujedinjenu Labinštinu, protiv projekta KOdeCO net zero [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/povorka-za-buducnost-zdrave-istre-u-labinu/)  
 03.12. prosvjed, osobni asistenti
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
