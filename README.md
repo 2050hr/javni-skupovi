@@ -1,10 +1,11 @@
 31.10. Oroslavje, podrška gradonačelniku Šimuniću [Index](https://www.index.hr/vijesti/clanak/u-oroslavju-najavljen-skup-podrske-viktoru-simunicu/2850686.aspx)  
-31.10. prosvjed, Pampas Osijek, “Za zeleni Pampas! Za zeleni Osijek! Protiv betonizacije!” [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-zeleni-pampas-za-zeleni-osijek-protiv-betonizacije/)  
+31.10. prosvjed, Pampas Osijek, “Za zeleni Pampas! Za zeleni Osijek! Protiv betonizacije!” [H-alter]()  
 07.11. povorka, Labin, Građanska inicijativa za ujedinjenu Labinštinu, protiv projekta KOdeCO net zero [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/povorka-za-buducnost-zdrave-istre-u-labinu/)  
 03.12. prosvjed, osobni asistenti
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | građanska inicijativa “Za zeleni Pampas” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-zeleni-pampas-za-zeleni-osijek-protiv-betonizacije/), [HRT v.](https://www.youtube.com/watch?v=AtSK1taMN1A)) | Pampas, Osijek | 31.10.2016 | protiv betonizacije obale |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=CuKY1NOBc-8)) | ispred Ministarstva socijalne politike, Zagreb | 28.10.2026 | zbog nemogućnosti roditelja njegovatelja da odu na bolovanje |
 | prosvjed | “Inicijativa za ujedinjenu Labinštinu” ([Istra24](https://www.istra24.hr/politika-i-drustvo/protest-u-labinu-protiv-holcimovog-kodeco-projekta-zupan-miletic-skriva-se-kao-mis-podanik-je-a.p.-a)) | Labin | 27.10.2026 | protiv Holcimovog projekta “KOdeCO Net Zero” |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=ckUC0mmG5QY)) | Rijeka | 19.10.2026 | traže hitnu sanaciju štete na Klobučarićevu trgu |
