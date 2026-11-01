@@ -1,4 +1,3 @@
-31.10. Oroslavje, podrška gradonačelniku Šimuniću [Index](https://www.index.hr/vijesti/clanak/u-oroslavju-najavljen-skup-podrske-viktoru-simunicu/2850686.aspx)  
 07.11. povorka, Labin, Građanska inicijativa za ujedinjenu Labinštinu, protiv projekta KOdeCO net zero [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/povorka-za-buducnost-zdrave-istre-u-labinu/)  
 03.12. prosvjed, osobni asistenti
 
