@@ -3,6 +3,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| performans | Zelena akcija ([Facebook](https://www.facebook.com/Zelenaakcija/posts/1536977151810753)) | Trg bana Jelačića, Zagreb | 06.11.2026 | protiv izgradnje podatkovnog centra u Topuskom |
 | prosvjed | građanska inicijativa “Za zeleni Pampas” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-zeleni-pampas-za-zeleni-osijek-protiv-betonizacije/), [HRT v.](https://www.youtube.com/watch?v=AtSK1taMN1A)) | Pampas, Osijek | 31.10.2016 | protiv betonizacije obale |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=CuKY1NOBc-8)) | ispred Ministarstva socijalne politike, Zagreb | 28.10.2026 | zbog nemogućnosti roditelja njegovatelja da odu na bolovanje |
 | prosvjed | “Inicijativa za ujedinjenu Labinštinu” ([Istra24](https://www.istra24.hr/politika-i-drustvo/protest-u-labinu-protiv-holcimovog-kodeco-projekta-zupan-miletic-skriva-se-kao-mis-podanik-je-a.p.-a)) | Labin | 27.10.2026 | protiv Holcimovog projekta “KOdeCO Net Zero” |
