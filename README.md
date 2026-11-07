@@ -3,6 +3,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | udruga “OdBor - Održivo Borovje” ([HRT v.](https://www.youtube.com/watch?v=1xDSTTPtnSM)) | Borovje, Zagreb | 06.11.2026 | protiv planirane gradnje 11 novih zgrada |
 | performans | Zelena akcija ([H-alter](https://h-alter.org/vijesti/zelena-akcija-protiv-megalomanskog-data-centra-u-topuskom/)) | Trg bana Jelačića, Zagreb | 06.11.2026 | protiv izgradnje podatkovnog centra u Topuskom |
 | prosvjed | građanska inicijativa “Za zeleni Pampas” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-zeleni-pampas-za-zeleni-osijek-protiv-betonizacije/), [HRT v.](https://www.youtube.com/watch?v=AtSK1taMN1A)) | Pampas, Osijek | 31.10.2016 | protiv betonizacije obale |
 | prosvjed | ([HRT v.](https://www.youtube.com/watch?v=CuKY1NOBc-8)) | ispred Ministarstva socijalne politike, Zagreb | 28.10.2026 | zbog nemogućnosti roditelja njegovatelja da odu na bolovanje |
