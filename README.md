@@ -1,8 +1,9 @@
-07.11. povorka, Labin, Građanska inicijativa za ujedinjenu Labinštinu, protiv projekta KOdeCO net zero [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/povorka-za-buducnost-zdrave-istre-u-labinu/)  
+
 03.12. prosvjed, osobni asistenti
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjedna povorka | Građanska inicijativa za ujedinjenu Labinštinu ([Novi list](https://www.novilist.hr/novosti/hrvatska/u-labinu-povorka-za-zdravu-buducnost-istra-ne-zeli-spaljivanje-otpada-u-holcimu/)) | Labin | 07.11.2026 | protiv Holcimovog projekta “KOdeCO Net Zero” |
 | prosvjed | udruga “OdBor - Održivo Borovje” ([HRT v.](https://www.youtube.com/watch?v=1xDSTTPtnSM)) | Borovje, Zagreb | 06.11.2026 | protiv planirane gradnje 11 novih zgrada |
 | performans | Zelena akcija ([H-alter](https://h-alter.org/vijesti/zelena-akcija-protiv-megalomanskog-data-centra-u-topuskom/)) | Trg bana Jelačića, Zagreb | 06.11.2026 | protiv izgradnje podatkovnog centra u Topuskom |
 | prosvjed | građanska inicijativa “Za zeleni Pampas” ([H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-zeleni-pampas-za-zeleni-osijek-protiv-betonizacije/), [HRT v.](https://www.youtube.com/watch?v=AtSK1taMN1A)) | Pampas, Osijek | 31.10.2016 | protiv betonizacije obale |
