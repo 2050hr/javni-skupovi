@@ -3,6 +3,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | zaposlenici klinike ([Index](https://vijesti.hrt.hr/hrvatska/prosvjed-pred-klinikom-za-psihijatriju-zbog-uhicenja-medicinskih-tehnicara-13000921)) | ispred Klinike za psihijatriju “Sveti Ivan”, Zagreb | 09.11.2026 | iskazivanje podrške uhićenim kolegama i upozoravanje na izuzetno teške i nesigurne uvjete rada na psihijatrijskim odjelima |
 | prosvjed | A-HSP ([Index](https://www.index.hr/vijesti/clanak/keleminec-ispred-kuce-sdssovke-pustao-bojnu-cavoglave-i-kreni-gardo-bandu-gazi/2855110.aspx), [VIDA v.](https://www.youtube.com/watch?v=ZcMYqdmpwD0)) | ispred kuće saborske zastupnice Dragane Jeckov, Negoslavci | 08.11.2026 | traže informacije o sudbini nestalih hrvatskih branitelja i civila |
 | prosvjed | ([RTL v.](https://www.youtube.com/watch?v=ywK06tJxM4k)) | Petrinja | 07.11.2026 | zbog nepouzdanog javnog prijevoza |
 | prosvjedna povorka | Građanska inicijativa za ujedinjenu Labinštinu ([Novi list](https://www.novilist.hr/novosti/hrvatska/u-labinu-povorka-za-zdravu-buducnost-istra-ne-zeli-spaljivanje-otpada-u-holcimu/)) | Labin | 07.11.2026 | protiv Holcimova projekta “KOdeCO Net Zero” |
