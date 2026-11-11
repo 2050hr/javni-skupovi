@@ -1,4 +1,4 @@
-
+14.11. Inicijativa ujedinjene Labinštine, Pula, protiv projekta KOdeCO [H-alter](https://h-alter.org/sto-nas-ceka/pritisak-odozdo/prosvjed-za-cistu-istru-u-puli-stop-co2-i-spaljivanju-otpada/)  
 03.12. prosvjed, osobni asistenti
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
