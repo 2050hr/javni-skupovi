@@ -3,6 +3,7 @@
 
 | Što? | Tko? | Gdje? | Kada? | Zašto? |
 | :---- | :---- | :---- | :---- | :---- |
+| prosvjed | udruga “Malo čudo” ([Index](https://www.index.hr/vijesti/clanak/roditelji-njegovatelji-treci-tjedan-prosvjeduju-nemamo-pravo-na-bolovanje/2856739.aspx)) | ispred Ministarstva rada, Zagreb | 12.11.2026 | traže prava na bolovanje i podršku obiteljima koje skrbe o djeci s teškoćama u razvoju |
 | prosvjed | zaposlenici klinike ([HRT](https://vijesti.hrt.hr/hrvatska/prosvjed-pred-klinikom-za-psihijatriju-zbog-uhicenja-medicinskih-tehnicara-13000921)) | ispred Klinike za psihijatriju “Sveti Ivan”, Zagreb | 09.11.2026 | iskazivanje podrške uhićenim kolegama i upozoravanje na izuzetno teške i nesigurne uvjete rada na psihijatrijskim odjelima |
 | prosvjed | A-HSP ([Index](https://www.index.hr/vijesti/clanak/keleminec-ispred-kuce-sdssovke-pustao-bojnu-cavoglave-i-kreni-gardo-bandu-gazi/2855110.aspx), [VIDA v.](https://www.youtube.com/watch?v=ZcMYqdmpwD0)) | ispred kuće saborske zastupnice Dragane Jeckov, Negoslavci | 08.11.2026 | traže informacije o sudbini nestalih hrvatskih branitelja i civila |
 | prosvjed | ([RTL v.](https://www.youtube.com/watch?v=ywK06tJxM4k)) | Petrinja | 07.11.2026 | zbog nepouzdanog javnog prijevoza |
